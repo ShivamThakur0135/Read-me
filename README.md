@@ -1,3 +1,3 @@
-# Read-me
+# Shivam Thakur 
 I am Shivam Thakur
-Nice meeting you people
+Nice meeting you 
